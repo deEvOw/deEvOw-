@@ -1,2 +1,1 @@
-# deEvOw-
-menfess and memories
+minta maaf akuu
